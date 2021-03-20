@@ -67,5 +67,7 @@
 ## Contact
 
 Team Creative Mavericks
+</br>
 Vedangi Agarwal - [Lets connect](https://www.linkedin.com/in/vedangi-agarwal-4a39809a/)
+</br>
 Konark Sharma - [Lets connect](https://www.linkedin.com/in/vedangi-agarwal-4a39809a/)
